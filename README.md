@@ -1,1 +1,0 @@
-# Kaito-Daiki-Bot
